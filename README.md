@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mburkland84
+- 👀 I’m interested in GIS, Digital Humanities, environmental issues,and data visualization.
+- 🌱 I’m currently learning Library and Information Sciences at Queens College in NYC!
+- 📫 Contact me at my link in the bio!
